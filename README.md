@@ -1,3 +1,3 @@
-Ok, funny joke.
+https://discord.gg/cheaters-university
 
-my discord - Error.#8612
+my discord - uid#8612
